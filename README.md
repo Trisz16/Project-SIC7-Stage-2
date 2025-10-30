@@ -1,1 +1,1 @@
-# Proejct-SIC7-Stage-2
+# Project-SIC7-Stage-2
